@@ -1,4 +1,4 @@
-#  
+#  dig deeper for brainrots top Scripts is the best dig deeper for brainrots Script, featuring anti-ban and auto-sell. Safe and powerful for all your
 
 
 
